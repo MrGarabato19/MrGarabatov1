@@ -1,12 +1,12 @@
-# MrGarabatov1-Infeeble
-MrGarabatov1-Infeeble Project
+# MrGarabatov1
+MrGarabatov
 
 English:
 If you have any problems you can help here
 
-https://discord.gg/gpqYvfh
+https://discord.gg/VXPhpsF
 
 Ruso:
 Если у вас есть какие-либо проблемы, вы можете помочь здесь
 
-https://discord.gg/gpqYvfh
+https://discord.gg/VXPhpsF
