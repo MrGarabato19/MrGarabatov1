@@ -1,5 +1,4 @@
-# MrGarabatov1
-MrGarabatov
+# MrGarabato
 
 ★Link De Descarga Ultra Hack (en Discord):
 https://bit.ly/3tlFzQx
